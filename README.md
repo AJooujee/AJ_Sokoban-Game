@@ -1,6 +1,6 @@
 ## Contact
 
-Name: Sudhir Gunaseelan
+Name: AJ C Pipattanakun
 
 ## Description
 
